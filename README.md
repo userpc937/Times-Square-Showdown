@@ -2,6 +2,8 @@
 
 By Paula Chung and Neil Hadap
 
+YouTube Video: https://youtu.be/QBd7aSDz3o8
+
 Tagline: Navigate the noise. Outsmart the city that never sleeps.
 
 Par 4
