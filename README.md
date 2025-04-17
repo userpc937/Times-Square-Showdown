@@ -1,5 +1,7 @@
 # Times Square Showdown
 
+By Paula Chung and Neil Hadap
+
 Tagline: Navigate the noise. Outsmart the city that never sleeps.
 
 Par 4
